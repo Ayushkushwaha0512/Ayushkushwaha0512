@@ -7,5 +7,5 @@
 - 🤔 I’m looking for help with Peoples to create fork and contribute in me repository
 - 💬 Ask me about Coding, Development
 - 📫 How to reach me: https://www.linkedin.com/in/ayushkushwaha9818/
-- 😄 Pronouns: HE/Him
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can manipulate you (❁´◡`❁)
