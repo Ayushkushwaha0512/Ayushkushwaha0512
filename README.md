@@ -9,3 +9,4 @@
 - 📫 How to reach me: https://www.linkedin.com/in/ayushkushwaha9818/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I can manipulate you (❁´◡`❁)
+[![Ayushkushwaha0512's GitHub | Languages Over Time](https://stats.quine.sh/Ayushkushwaha0512/languages-over-time?theme=dark)](https://quine.sh?utm_source=widgets&utm_campaign=Ayushkushwaha0512)
